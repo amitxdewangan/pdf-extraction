@@ -127,5 +127,4 @@ Made with 3 AM Coffee ☕️
 
 Feel free to reach out to me via my Socials for any queries or suggestions!
 
-[![Twitter](https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=x&logoColor=white&)](https://twitter.com/iamamit_18)
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=LinkedIn&logoColor=white)](https://www.linkedin.com/in/amit-dewangan/)
+**[Connect with me here !✨](https://linktr.ee/amit.dewangan)**
